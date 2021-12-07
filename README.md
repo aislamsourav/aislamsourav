@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @aislamsourav
+- 👋 Hi, I’m @aisourav
 - 👀 I’m interested in Graphic Design, UI/UX and Website Design.
 - 🌱 I’m currently learning Website Design
 - 📫 How to reach me - znap.link/aisourav
